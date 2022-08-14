@@ -3,14 +3,15 @@
 - 🎂 Kodlamayı Severim...
 - 🌱 2020 - 2022
 - 💞️ Sevdiğim Var fln...
+`WILFLEAX` 
 ```
 Developer By @paulserqx#3103  
 ```
 ## paulserqx İletişim Adresleri
-[Website](https://wilfleax.ml) - Telefona Mobile Olarak Mta İndirme PlayList 
-* 
-[Support Server](https://discord.gg/hNugT3XHWf) - Telefona Mobile Olarak Mta İndirme PlayList 
-* 
+[Website](https://wilfleax.ml) - Botun Websitesi
+
+[Support Server](https://discord.gg/hNugT3XHWf) - Botun/Kanalın Support Serveri
+
 [YouTube Channel](https://youtube.com/playlist?list=PLD1KsxI_8f3W_QT-j24MTth5b4VO2OuV9) - Telefona Mobile Olarak Mta İndirme PlayList 
 * 
 <!---
