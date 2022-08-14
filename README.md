@@ -3,7 +3,7 @@
 - 🎂 Kodlamayı Severim...
 - 🌱 2020 - 2022
 - 💞️ Sevdiğim Var fln...
-`WILFLEAX` 
+`WILFLEAX 2020 Tarihinde Kurulmuş Bir Şirkettir` 
 ```
 Developer By @paulserqx#3103  
 ```
