@@ -1,4 +1,4 @@
-# 2018 - 2023 𓆩۵Emo۵𓆪(pl!)
+# 2018 - 2023 𓆩۵Emo۵𓆪(pl)
 - 👋 Merhaba, Ben @paulserqx 
 - 🎂 Kodlamayı Severim...
 - 🌱 2018 - 2023
