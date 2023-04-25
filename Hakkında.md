@@ -12,7 +12,8 @@ Developer By @𓆩۵Emo۵𓆪#9853
 [Website](https://wilfleax.ml) - Botun Websitesi
 
 [İnstagram](https://instagram.com/emreozturk.pl?igshid=ZDdkNTZiNTM=) - Kişisel Hesabım
-[İnstagram]([https://wilfleax.ml](https://instagram.com/emreozturk.pl?igshid=ZDdkNTZiNTM=)) - Şirket Hesabım
+
+[İnstagram](https://instagram.com/paulserofficial?igshid=YmMyMTA2M2Y=) - Şirket Hesabım
 
 [Support Server](https://discord.gg/hNugT3XHWf) - Botun/Kanalın Support Serveri
 
