@@ -4,9 +4,9 @@
 - 🌱 2018 - 2023
 - 💞️ Sevdiğim Var fln...
 
-`WILFLEAX Eski Bir Şirkettir` 
+`✵۰۪۫ Paulser joined you under the name 𓆩۵Emo۵𓆪(Emo)` 
 ```
-Developer By @paulserqx#3103  
+Developer By @𓆩۵Emo۵𓆪#9853 
 ```
 ## 𓆩۵Emo۵𓆪 İletişim Adresleri
 [Website](https://wilfleax.ml) - Botun Websitesi
