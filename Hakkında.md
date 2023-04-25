@@ -10,6 +10,8 @@ Developer By @𓆩۵Emo۵𓆪#9853
 ```
 ## 𓆩۵Emo۵𓆪 İletişim Adresleri
 [Website](https://wilfleax.ml) - Botun Websitesi
+[İnstagram]([https://instagram.com/emreozturk.pl?igshid=ZDdkNTZiNTM=]) - Kişisel Hesabım
+[İnstagram]([https://wilfleax.ml](https://instagram.com/emreozturk.pl?igshid=ZDdkNTZiNTM=)) - Şirket Hesabım
 
 [Support Server](https://discord.gg/hNugT3XHWf) - Botun/Kanalın Support Serveri
 
